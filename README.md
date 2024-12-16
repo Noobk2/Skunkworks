@@ -1,2 +1,0 @@
-# Skunkworks
-Noobk's Artwork
